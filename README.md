@@ -12,7 +12,7 @@
 
 05- https://madeinbranded.com/
 
-06- https://www.gamepointpk.com/
+06- https://gamepointpk.com/
 
 07- https://taxcalculator20.web.app/
 
